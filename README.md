@@ -1,4 +1,3 @@
-[![An image of @shreesh09's Holopin badges, which is a link to view their full Holopin profile](https://holopin.me/shreesh09)](https://holopin.io/@shreesh09)
 
 **TOOLS**
 
